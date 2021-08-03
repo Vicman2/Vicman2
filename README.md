@@ -16,5 +16,5 @@ Bascketball is the cool game for me.
 Lucky Dube and Travis Scott are the two legends I listen to on repeat 🎶
 English is what I speak fluently. 
 Let us connect
-  + [Twitter connect] (https://www.twiiter.com/offordilevictor/)
+  + [Twitter](https://www.twiiter.com/offordilevictor/)
   + [LinkedIn](https://www.linkedin.com/in/offordile-victor-9aa536181/)
