@@ -1,7 +1,7 @@
 ### Hi Dear 👋, 
 My name is Offordile Chimaobi Victor 😊
 
-A Sofware Enginner at Genesys Tech Hub 💻
+A Software Enginner at Genesys Tech Hub 💻
 
 I am also a  mathematician 📈
 
