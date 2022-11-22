@@ -1,15 +1,13 @@
 ### Hi Dear 👋, 
 My name is Offordile Chimaobi Victor 😊
 
-A Software Enginner at Genesys Tech Hub 💻
+A Software Enginner
 
 I am also a  mathematician 📈
 
-Graduated from Nnamdi Azikiwe University, Awka, Nigeria 🎓
-
 A fullstack web developer (Backend heavy)
 
-Bascketball is the cool game for me. 
+Basketball is the cool game for me. 
 
 English is what I speak fluently. 
 
