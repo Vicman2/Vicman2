@@ -1,13 +1,11 @@
 ### Hi Dear 👋, 
-My name is Offordile Chimaobi Victor 😊
+My name is Chimaobi Victor Offordile😊
 
 A Software Enginner
 
 I am also a  mathematician 📈
 
 A fullstack web developer (Backend heavy)
-
-Basketball is the cool game for me. 
 
 English is what I speak fluently. 
 
